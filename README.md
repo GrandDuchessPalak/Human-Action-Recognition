@@ -112,8 +112,8 @@ MIT License — free to use and adapt with attribution.
 
 ## 🙋 Author
 
-**[Your Name]**  
-[LinkedIn](https://linkedin.com/in/your-profile) · [GitHub](https://github.com/your-username)
+**Palak**  
+[LinkedIn](https://www.linkedin.com/in/palak-arora-3a1296325?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app) · [GitHub](https://github.com/GrandDuchessPalak)
 
 ---
 
